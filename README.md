@@ -1,1 +1,1 @@
-# majn-biznis
+# tryy
